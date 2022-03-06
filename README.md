@@ -1,2 +1,2 @@
 # opensourcelearning
-this is purely my learning's  by speending a quality of time on subjects
+this is purely my learning's  by spending a quality of time on subjects
